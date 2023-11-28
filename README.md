@@ -26,4 +26,6 @@ Ini linknya: https://ayyameeee.github.io/Ma-Lopp/
 sincerelly,
 ur friend
 
+Anggaa
+
 
