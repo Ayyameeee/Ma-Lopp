@@ -20,10 +20,10 @@ LULUS UJIAN CPNS DAN SEMPRO TAHUN INI....AAMIIN
 
 Angga sudah ulahkan codingan sesuatu dsan Ihdaa, walau banyak jiplaknya wkwke maaf
 Kena buka ja linknya, sudah angga siapkan mwehehe
+Ini linknya: https://ayyameeee.github.io/Ma-Lopp/
 
 
 sincerelly,
 ur friend
 
-https://ayyameeee.github.io/Ma-Lopp/
 
